@@ -21,7 +21,7 @@
 Check out my personal website [Joe-fitzgerald.com](https://joe-fitzgerald.com).
 
 ## Contact
-Connect with me on [LinkedIn](www.linkedin.com/in/joseph-e-fitzgerald)
+Connect with me on [LinkedIn](https://www.linkedin.com/in/joseph-e-fitzgerald/).
 
 
 
